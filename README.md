@@ -1,7 +1,7 @@
 
                 |￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
 
-                    hi!   
+                    hi! i'm hyunjung ko
                     email - asha010519@gmail.com   
                     blog - https://waitingforg.tistory.com/    
                 |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
