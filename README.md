@@ -1,23 +1,14 @@
 
-|￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
-          hi~   
-|＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
-       \ (•◡•) /   
-        \     /   
+                |￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
+
+                    hi!   
+                    email - asha010519@gmail.com   
+                    blog - https://waitingforg.tistory.com/    
+                |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
+                        \ (•◡•) /   
+                         \  /   
 
 
-
-
-                                            ▰▱▰▱▰▱▰▱▰▱▰▱▰▱
-
-
-![chp1](https://user-images.githubusercontent.com/102934972/162386506-61560538-1be3-4c15-9bb2-560ebdfa4c5e.png)
-
-
-                                            ▰▱▰▱▰▱▰▱▰▱▰▱▰▱
-                                           
-email - asha010519@gmail.com   
-blog - https://waitingforg.tistory.com/   
 
 <!--
 **hyunnn0105/hyunnn0105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
