@@ -1,12 +1,12 @@
 
-                |￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
+                |￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
 
-                    hi! i'm hyunjung ko
-                    email - asha010519@gmail.com   
-                    blog - https://waitingforg.tistory.com/    
-                |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
-                        \ (•◡•) /   
-                         \  /   
+                    Hi! I'm hyunjung go🔥   
+                    💌 email - asha010519@gmail.com   
+                    💾 blog - https://waitingforg.tistory.com/    
+                |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
+                          \ (•◡•) /   
+                           \  /   
 
 
 
