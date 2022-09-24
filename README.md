@@ -6,9 +6,8 @@
 
                                             ▰▱▰▱▰▱▰▱▰▱▰▱▰▱
                                            
-안녕하세요
-email - asha010519@gmail.com
-blog - https://waitingforg.tistory.com/
+email - asha010519@gmail.com   
+blog - https://waitingforg.tistory.com/   
 
 <!--
 **hyunnn0105/hyunnn0105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
