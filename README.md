@@ -3,8 +3,7 @@
 
                     Hi! I'm hyunjung go🔥   
                     💌 email - asha010519@gmail.com   
-                    💾 blog - https://waitingforg.tistory.com/
-                    https://www.notion.so/9883748a9cab4e9a8b6799e48d8024a8
+                    💾 blog - https://waitingforg.tistory.com/   
                 |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
                           \ (•◡•) /   
                            \  /   
