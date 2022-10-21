@@ -2,7 +2,7 @@
                 |￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|   
 
                     Hi! I'm hyunjung go🔥   
-                    💌 email - asha010519@gmail.com   
+                    💌 email - zelos0419@naver.com   
                     💾 blog - https://waitingforg.tistory.com/   
                 |＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿|   
                           \ (•◡•) /   
